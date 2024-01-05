@@ -1,1 +1,1 @@
-Waves Physics Lab Notebook
+Waves Physics Lab Notebook.
